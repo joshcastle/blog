@@ -1,4 +1,4 @@
-# Title
+# Battle of Ramadi - Light - Columbus, OH
 # Index
 * [Training](#training)
 * [Event Background](#event-background)

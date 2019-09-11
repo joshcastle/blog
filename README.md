@@ -1,4 +1,4 @@
-## Welcome to Ruck Dad!
+## Welcome to Ruck Geek!
 
 ![Shanksville Light Class Photo](images/FB_IMG_1568023064863.jpg "Shanksville Light Class Photo")
 

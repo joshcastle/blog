@@ -11,9 +11,10 @@
   - [The Event](#The-Event)
     - [Admin](#Admin)
     - [Welcoming Party](#Welcoming-Party)
-  - [Endex](#Endex)
-    - [Lessons Learn](#Lessons-Learn)
-    - [What's Next?](#Whats-Next)
+    - [Movement](#Movement)
+    - [Endex](#Endex)
+  - [Lessons Learned](#Lessons-Learned)
+  - [What's Next?](#Whats-Next)
 
 ## Training
 This was my very first GORUCK event. I had received my 21L GR1 as a birthday gift almost a year prior and had decided it was time to use it as it was intended! Training consisted of: February 2019 Monthly GORUCK challenge of rucking a mile a day, increasing weight each week. April 2019 Monthly GORUCK challenge with 7 tough workouts in the month. Then about 6 weeks out I started GORUCK's light training guide [here](https://content.goruck.com/site-content/training-plans/light-training-plan.pdf). For the most part I trained with a 20lb GORUCK plate, usually not much more than that (not ideal!). I ended most my training with a 9 mile trail ruck the Thursday prior to the event. Then the week of I did some small rucks and light PT ending Wednesday night.
@@ -55,7 +56,7 @@ Next the Cadre created a couple 120lb sandbag casualties using a [tarp like unit
 ![Rope Wall](ropeWall.jpg "Rope Wall")
 ![Rope Wall 2](ropeWall2.jpg "Rope Wall 2")
 ![Wood Wall](woodWall.jpg "Wood Wall")
-
+### Movement
 Then we headed over for some bridge crossing:
 ![Bridge Cross](bridgeCross.jpg "Bridge Cross")
 
@@ -69,13 +70,13 @@ We then rucked through the Columbus Pride parade that was going on that weekend,
 Then we turned back, at this point about 4 miles out I am guessing. We thankfully got to drop a 60lb sandbag during this time hack. Our last PT was 260 pushups! Mess up count and we would start over. Thankfully it was as a team going down and back counting. After a couple false starts, we actually made it all the way through. Oh yeah it decided to pour down rain during this.
 ![Team Pushups](teamPushups.jpg "Team Pushups")
 
+### Endex
 Reward for getting through the pushups, we got to dump another sandbag! Less coupons at this point was more than welcome! We made it back to the start point, with everyone in high spirits. I was super pumped, as this was my first and didn't know what to expect, so to know I was about to complete this crazy thing was incredibly satisfying! We dropped the rest of the sandbags in the near by sand courts then got back where we started about 6 hours ago (under promise, over deliver!). We covered stats and ended up doing a little over 8 miles, carried lots of coupons, and agreed came together as a pretty decent team. Queue the patches and beer!
 ![endex](endex.jpg "endex")
-## Endex
-### Lessons Learn
+## Lessons Learned
 * Pack you bag early in your training to see how much you should train with. I was a little surprised to see my Ruck was around 35lbs once packed. I had only really trained with 20lbs. I think I made it through on adrenaline :)
 * Train with sandbags or heavy things like them. I never carried a sandbag before this. The 80lb sandbag opened my eyes! I surprised myself and carried it on a regular rotation with the team. Side note I had some sore ribs in the days afterwards!
 * TL & ATL should help the team by focusing them on objectives, which likely means not carrying coupons.
 * Consider pants, I wore short and got some scraps crawling on the ground. Pants may have helped a little bit. Then again don't wear something you won't be comfortable and able to move in.
-### What's Next?
+## What's Next?
 * I am hooked. I am searching for the next event. Going for one more light before a tough. Let the fun begin!

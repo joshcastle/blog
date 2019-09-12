@@ -13,5 +13,5 @@
 * 12/07/2019 - Pearl Harbor - Light - Columbus, OH
 
 ---
-
-[Check out the Columbus Rucking Club!](https://www.facebook.com/columbusruckingclub/)
+### Columbus Ruck Club
+[Check us out!---->![GORUCK Official Club](images/goruckClubSmall.png)](https://www.facebook.com/columbusruckingclub/)

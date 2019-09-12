@@ -13,6 +13,7 @@
     - [Welcoming Party](#Welcoming-Party)
   - [Endex](#Endex)
     - [Lessons Learn](#Lessons-Learn)
+    - [What's Next?](#Whats-Next)
 
 ## Training
 This was my very first GORUCK event. I had received my 21L GR1 as a birthday gift almost a year prior and had decided it was time to use it as it was intended! Training consisted of: February 2019 Monthly GORUCK challenge of rucking a mile a day, increasing weight each week. April 2019 Monthly GORUCK challenge with 7 tough workouts in the month. Then about 6 weeks out I started GORUCK's light training guide [here](https://content.goruck.com/site-content/training-plans/light-training-plan.pdf). For the most part I trained with a 20lb GORUCK plate, usually not much more than that (not ideal!). I ended most my training with a 9 mile trail ruck the Thursday prior to the event. Then the week of I did some small rucks and light PT ending Wednesday night.
@@ -76,3 +77,5 @@ Reward for getting through the pushups, we got to dump another sandbag! Less cou
 * Train with sandbags or heavy things like them. I never carried a sandbag before this. The 80lb sandbag opened my eyes! I surprised myself and carried it on a regular rotation with the team. Side note I had some sore ribs in the days afterwards!
 * TL & ATL should help the team by focusing them on objectives, which likely means not carrying coupons.
 * Consider pants, I wore short and got some scraps crawling on the ground. Pants may have helped a little bit. Then again don't wear something you won't be comfortable and able to move in.
+### What's Next?
+* I am hooked. I am searching for the next event. Going for one more light before a tough. Let the fun begin!

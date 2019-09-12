@@ -1,4 +1,5 @@
 # Battle of Ramadi - Light - Columbus, OH
+![Battle of Ramadi Patch](battleOfRamadiPatch.jpg "Battle of Ramadi Patch")
 ## Index
 - [Battle of Ramadi - Light - Columbus, OH](#Battle-of-Ramadi---Light---Columbus-OH)
   - [Index](#Index)
@@ -69,10 +70,6 @@ Then we turned back, at this point about 4 miles out I am guessing. We thankfull
 
 Reward for getting through the pushups, we got to dump another sandbag! Less coupons at this point was more than welcome! We made it back to the start point, with everyone in high spirits. I was super pumped, as this was my first and didn't know what to expect, so to know I was about to complete this crazy thing was incredibly satisfying! We dropped the rest of the sandbags in the near by sand courts then got back where we started about 6 hours ago (under promise, over deliver!). We covered stats and ended up doing a little over 8 miles, carried lots of coupons, and agreed came together as a pretty decent team. Queue the patches and beer!
 ![endex](endex.jpg "endex")
-
-
-
-
 ## Endex
 ### Lessons Learn
 * Pack you bag early in your training to see how much you should train with. I was a little surprised to see my Ruck was around 35lbs once packed. I had only really trained with 20lbs. I think I made it through on adrenaline :)

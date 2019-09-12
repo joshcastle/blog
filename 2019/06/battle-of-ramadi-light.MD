@@ -78,5 +78,6 @@ Reward for getting through the pushups, we got to dump another sandbag! Less cou
 * Train with sandbags or heavy things like them. I never carried a sandbag before this. The 80lb sandbag opened my eyes! I surprised myself and carried it on a regular rotation with the team. Side note I had some sore ribs in the days afterwards!
 * TL & ATL should help the team by focusing them on objectives, which likely means not carrying coupons.
 * Consider pants, I wore short and got some scraps crawling on the ground. Pants may have helped a little bit. Then again don't wear something you won't be comfortable and able to move in.
+  
 ## What's Next?
 * I am hooked. I am searching for the next event. Going for one more light before a tough. Let the fun begin!

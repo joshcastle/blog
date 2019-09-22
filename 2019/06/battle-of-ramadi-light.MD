@@ -1,20 +1,21 @@
 # Battle of Ramadi - Light - Columbus, OH
 ![Battle of Ramadi Patch](battleOfRamadiPatch.jpg "Battle of Ramadi Patch")
 ## Index
-- [Battle of Ramadi - Light - Columbus, OH](#Battle-of-Ramadi---Light---Columbus-OH)
-  - [Index](#Index)
-  - [Training](#Training)
-  - [Event Background](#Event-Background)
-  - [Packing List](#Packing-List)
-    - [Gear](#Gear)
-  - [Event Location](#Event-Location)
-  - [The Event](#The-Event)
-    - [Admin](#Admin)
-    - [Welcoming Party](#Welcoming-Party)
-    - [Movement](#Movement)
-    - [Endex](#Endex)
-  - [Lessons Learned](#Lessons-Learned)
-  - [What's Next?](#Whats-Next)
+- [Battle of Ramadi - Light - Columbus, OH](#battle-of-ramadi---light---columbus-oh)
+  - [Index](#index)
+  - [Training](#training)
+  - [Event Background](#event-background)
+  - [Packing List](#packing-list)
+    - [Gear](#gear)
+  - [Event Location](#event-location)
+  - [Cadre](#cadre)
+  - [The Event](#the-event)
+    - [Admin](#admin)
+    - [Welcoming Party](#welcoming-party)
+    - [Movement](#movement)
+    - [Endex](#endex)
+  - [Lessons Learned](#lessons-learned)
+  - [What's Next?](#whats-next)
 
 ## Training
 This was my very first GORUCK event. I had received my 21L GR1 as a birthday gift almost a year prior and had decided it was time to use it as it was intended! Training consisted of: February 2019 Monthly GORUCK challenge of rucking a mile a day, increasing weight each week. April 2019 Monthly GORUCK challenge with 7 tough workouts in the month. Then about 6 weeks out I started GORUCK's light training guide [here](https://content.goruck.com/site-content/training-plans/light-training-plan.pdf). For the most part I trained with a 20lb GORUCK plate, usually not much more than that (not ideal!). I ended most my training with a 9 mile trail ruck the Thursday prior to the event. Then the week of I did some small rucks and light PT ending Wednesday night.
@@ -42,8 +43,12 @@ This event focus on the events that happened during the Battle of Ramadi in 2006
 ## Event Location
 >[Scioto Audubon Metro Park, Columbus, OH](https://goo.gl/maps/cmw8Nfb7EbAd5Av56)
 
+## Cadre
+Cadre Igor
+![CaDre Igor](igor.jpg "Cadre Igor")
+
 ## The Event
-Showed up about 15 minutes before start time and saw a small group assembling of that looked to be fellow Ruckers. I had done a little bit of research on Cadre Igor prior to the event and saw he posted that morning a picture of the Ranger tab setting on his car at the park. Sure enough there it was. I was in the right place.
+Showed up about 15 minutes before start time and saw a small group assembling of what looked to be fellow Ruckers. I had done a little bit of research on Cadre Igor prior to the event and saw he posted that morning a picture of the Ranger tab setting on his car at the park. Sure enough there it was. I was in the right place.
 ### Admin
 We gathered in an open area and the admin phase kicked off: roll call, identify service members/LEO/EMT in the group, and ask about any health concerns the Cadre should know about.
 ### Welcoming Party
@@ -60,24 +65,24 @@ Next the Cadre created a couple 120lb sandbag casualties using a [tarp like unit
 Then we headed over for some bridge crossing:
 ![Bridge Cross](bridgeCross.jpg "Bridge Cross")
 
-Took a little break to refill water and answer a quiz. Each correct answer removed one, each wrong added one to our up and back of "stairs". We did pretty good and ended up with 8. Then we took our sandbag casualties over to the stairs and got to work. Started as full teams, then switched to a 3 man system to knock a few out quickly.
+Took a little break to refill water and a Quiz on the Battle of Ramadi. Each correct answer removed one, each wrong added one to our up and back of "stairs". We did pretty good and ended up with 8. Then we took our sandbag casualties over to the stairs and got to work. Started as full teams, then switched to a 3 man system to knock a few out quickly.
 ![Stairs](stairs.jpg "stairs")
 ![Stairs 2](stairs2.jpg "stairs 2")
 
 We then rucked through the Columbus Pride parade that was going on that weekend, up to the Veteran's memorial for quick break and discussion before heading over to Goodale park for some team fun, and an 8 legged race!
 ![8 legged race](8leggedRace.jpg "8 legged race")
 
-Then we turned back, at this point about 4 miles out I am guessing. We thankfully got to drop a 60lb sandbag during this time hack. Our last PT was 260 pushups! Mess up count and we would start over. Thankfully it was as a team going down and back counting. After a couple false starts, we actually made it all the way through. Oh yeah it decided to pour down rain during this.
+Then we turned back, at this point about 4 miles out I am guessing. We thankfully got to drop a 60lb sandbag during this time hack. Our last PT was 260 pushups! Mess up count and we would start over. Thankfully it was as a team going down and back counting them out. After a couple false starts (Cadre caught on quickly to us starting in the down position and started us over), we actually made it all the way through. Oh yeah it decided to pour down rain during this.
 ![Team Pushups](teamPushups.jpg "Team Pushups")
 
 ### Endex
-Reward for getting through the pushups, we got to dump another sandbag! Less coupons at this point was more than welcome! We made it back to the start point, with everyone in high spirits. I was super pumped, as this was my first and didn't know what to expect, so to know I was about to complete this crazy thing was incredibly satisfying! We dropped the rest of the sandbags in the near by sand courts then got back where we started about 6 hours ago (under promise, over deliver!). We covered stats and ended up doing a little over 8 miles, carried lots of coupons, and agreed came together as a pretty decent team. Queue the patches and beer!
+Reward for getting through the pushups, we got to dump another sandbag! Less coupons at this point was more than welcome! We made it back to the start point, with everyone in high spirits. I was super pumped, as this was my first GORUCK Challenge and didn't know what to expect, so to know I was about to complete this crazy thing was incredibly satisfying! We dropped the rest of the sandbags in the near by sand volleyball courts then got back where we started about 6 hours ago (under promise, over deliver!). We covered stats and ended up doing a little over 8 miles, carried lots of coupons, and came together as a pretty decent team. Queue the patches and beer!
 ![endex](endex.jpg "endex")
 ## Lessons Learned
 * Pack you bag early in your training to see how much you should train with. I was a little surprised to see my Ruck was around 35lbs once packed. I had only really trained with 20lbs. I think I made it through on adrenaline :)
-* Train with sandbags or heavy things like them. I never carried a sandbag before this. The 80lb sandbag opened my eyes! I surprised myself and carried it on a regular rotation with the team. Side note I had some sore ribs in the days afterwards!
+* Train with sandbags or heavy things like them. Consider carrying logs or Jerry Cans during training. I had never carried a sandbag before this. The 80lb sandbag opened my eyes! I surprised myself and carried it on a regular rotation with the team. Side note I had some sore ribs in the days afterwards from heavy breathing with the extra weight!
 * TL & ATL should help the team by focusing them on objectives, which likely means not carrying coupons.
-* Consider pants, I wore short and got some scraps crawling on the ground. Pants may have helped a little bit. Then again don't wear something you won't be comfortable and able to move in.
+* Consider pants, I wore shorts and got some scraps crawling on the ground. Pants may have helped a little bit. Then again don't wear something you won't be comfortable and able to move in.
   
 ## What's Next?
 * I am hooked. I am searching for the next event. Going for one more light before a tough. Let the fun begin!

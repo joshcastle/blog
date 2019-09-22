@@ -1,4 +1,6 @@
 # Battle of Ramadi - Light - Columbus, OH
+06-15-2019
+
 ![Battle of Ramadi Patch](battleOfRamadiPatch.jpg "Battle of Ramadi Patch")
 ## Index
 - [Battle of Ramadi - Light - Columbus, OH](#battle-of-ramadi---light---columbus-oh)

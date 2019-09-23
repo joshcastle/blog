@@ -105,7 +105,7 @@ The 17 ton boulder in the middle of this field represents where United 93 impact
 
 After our 2 mile walk around the memorial, we met back up with everyone. We filled up on water and headed back into Shanksville to the fire station. During this time on our way back I was up as TL. I learned a little from those before me. I took a stance off to the the side of the group as we moved, keeping everyone together, and in two columns. I communicated with the ATL in the back to make sure we had everyone, and to keep us together. I then started working through rotations of coupons. At this point everyone had down the transfers and we were a pretty well oiled machine. I tried to keep our pace up for our time hack. Upon arrival to the fire station we learned we were a couple minutes under! We were working as a team finally. At the fire station we were honored to do some PT in memorial to those that perished that day, and those who responded. Between a firetruck that was there on the crash scene that day and a field of flags with steel from the World Trade Centers we started our 40 exercises (for the 40 citizens lost that day).
 ![firehousePT](firehousePT.jpg "firehousePT")
-![firehouse PT 2](firehousePT2.jpg "firehouse PT 2")
+![firehouse PT 2](firehousePt2.jpg "firehouse PT 2")
 Afterwards we got a few minutes with phones to grab some pictures.
 ![firetruck](firetruck.jpg "firetruck")
 ![teamFiretruck](teamFiretruck.jpg "teamFiretruck")

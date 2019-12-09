@@ -1,5 +1,10 @@
+* Weather
+* First Tough
+* Lake Erie Shores
+
+
 # Battle of Fallujah - Light - Columbus, OH
-06-15-2019
+10-25-2019
 
 ![Battle of Ramadi Patch](battleOfRamadiPatch.jpg "Battle of Ramadi Patch")
 ## Index

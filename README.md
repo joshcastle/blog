@@ -8,6 +8,7 @@
 
 # Upcoming Events for Me
 * 10/25/2019 - Battle of Fallujah - Tough - Cleveland, OH
+* 10/26/2019 - Battle of Fallujah - Light - Cleveland, OH
 * 11/02/2019 - Star Course - 12 Miler - Nashville, TN
 * 12/06/2019 - Pearl Harbor - Tough - Columbus, OH
 * 12/07/2019 - Pearl Harbor - Light - Columbus, OH

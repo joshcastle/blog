@@ -1,5 +1,10 @@
 # Pearl Harbor - Tough - Columbus, OH
-06-15-2019
+12-06-2019
+
+Notes
+* 30°/ 20°
+* Matt's Notes: https://github.com/reinerm/Ruck-Funning/blob/master/2019/12/PearlHarbor.md
+* 
 
 ![Battle of Ramadi Patch](battleOfRamadiPatch.jpg "Battle of Ramadi Patch")
 ## Index

@@ -82,6 +82,7 @@ Here we formed up again, thinking we were done. We were wrong we had some PT to 
 * Never leave anyone behind, sometimes the cadre notices, and lessens the punishment for loosing. Anyways this is a TEAM event, it only matters what you do as a TEAM.
  
  ## Stats
+ ![Battle of Fallujah Tough Stats](bofToughStats.png)
  * 11 hours 20 minutes
  * 14.16 Miles
  * 2,139 ft of elevation gain

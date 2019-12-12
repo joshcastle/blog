@@ -75,7 +75,9 @@ From the Rock and Roll Hall of Fame we moved to a city center with a statue of H
 In our first park we did some group exercises where as a team we had to do 320 situps with a time hack to drop some sandbags, we missed the time hack and doubled down on 320 pushups and a smaller time hack and pushed to make it happen.
 ![group pt](FB_IMG_1576160394539.jpg)
 ![group pt](FB_IMG_1576160399135.jpg)
-We then moved out to another park as daylight approached, here we did low crawl races while split into two teams. Had to get a 80lb, 60lb, and 40lb sandbags to the other side while low crawling. Winner was the team that got Sandbags and all members across the line. We got the sandbags over quickly but had a couple members feeling the last 8 hours of beat down. Myself and a couple others low crawled back to help them across the line. We lost, but we didn't leave people behind. Cadre saw this and lessoned our punishment. Sun was up at this point and we proceeded back to Endex.
+We then moved out to another park as daylight approached, here we did low crawl races while split into two teams. Had to get a 80lb, 60lb, and 40lb sandbags to the other side while low crawling. Winner was the team that got Sandbags and all members across the line. 
+![sandbag race](FB_IMG_1576181749821.jpg)
+We got the sandbags over quickly but had a couple members feeling the last 8 hours of beat down. Myself and a couple others low crawled back to help them across the line. We lost, but we didn't leave people behind. Cadre saw this and lessoned our punishment. Sun was up at this point and we proceeded back to Endex.
 
 ### Endex
 

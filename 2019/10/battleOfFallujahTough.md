@@ -65,7 +65,7 @@ We had 31 folks sign up, about half chasing their bolts and had completed their 
 
 ### Welcoming Party
 
-Weather was in the 50s but a steady mist and windy as hell. Looking back it looks like gusts were up to 30mph. We were right off the shores of Lake Erie so we felt all of the suck. We formed up and did the usual pushups, situps, flutter kicks, overhead press, etc. for about 30 minutes. Then had a small movement to the beach. Here we did bear crawls, sprints, crab walks, inch worms, and anything else that could help the sand get in every crevice. We then assigned TL & ATL and were tasked with filling up the sandbags. Chaosed ensued as fillers lost sandbags, zippers got caked in sand, and all hope was lost. We had to dump them all in a pile and sort them back out. Then we ran to the water and looked at it. Folks from the Heavy knew what was coming next, the part were we get in. Gracefully we did not get in and ran back. Probably because we were already soaked from the rain. We then had a small group clean and fill sandbags while everyone else did the deck of death. After what felt like forever we got everything filled and formed up to move out.
+Weather was in the 50s but a steady mist and windy as hell. Looking back it looks like gusts were up to 30mph. We were right off the shores of Lake Erie so we felt all of the suck. We formed up and did the usual pushups, situps, flutter kicks, overhead press, etc. for about 30 minutes. We then paired up with "someone your size" (the words still haunt me). I paired up with another giant and then learned we were doing firemen carries down and back for about 200 yards. My partner tossed my on his shoulders and sprinted, easily beating the rest of the group. My turn, this was my first time doing these, so I bent to the side and got him on my shoulders and shakely walked down and back feeling like I could snap in half at any moment! Then we had a small movement to the beach. Here we did bear crawls, sprints, crab walks, inch worms, and anything else that could help the sand get in every crevice. We then assigned TL & ATL and were tasked with filling up the sandbags. Chaosed ensued as fillers lost sandbags, zippers got caked in sand, and all hope was lost. We had to dump them all in a pile and sort them back out. Then we ran to the water and looked at it. Folks from the Heavy knew what was coming next, the part were we get in. Gracefully we did not get in and ran back. Probably because we were already soaked from the rain. We then had a small group clean and fill sandbags while everyone else did the deck of death. After what felt like forever we got everything filled and formed up to move out.
 
 ### Movement
 
@@ -77,9 +77,14 @@ Here we formed up again, thinking we were done. We were wrong we had some PT to 
 
 ## Lessons Learned
 
-* Always lift with your legs for fireman carries. I strained my traps something feirce by bending at the waste.
+* Always lift with your legs for fireman carries. I strained my traps something fierce by bending at the waste to lift.
 * Windbreaker for the win, really helped keep the beating rain and wind off me.
-* Never leave anyone behind, sometimes it even helps if you still end up loosing.
+* Never leave anyone behind, sometimes the cadre notices, and lessens the punishment for loosing. Anyways this is a TEAM event, it only matters what you do as a TEAM.
  
+ ## Stats
+ * 11 hours 20 minutes
+ * 14.16 Miles
+ * 2,139 ft of elevation gain
   
 ## What's Next?
+* Battle of Fallujah light in about 4 hours

@@ -19,6 +19,11 @@
   - [What's Next?](#whats-next)
 
 ## Event Background
+Marines don’t know how to spell the word defeat.” 
+— Gen. James Mattis
+
+When his Marines arrived in Iraq in 2003, Gen. Mattis spoke those words to live by in an asymmetrical battle-space. The Second Battle of Fallujah was a joint American, Iraqi, and British offensive at the end of 2004 and the locus of some of the heaviest urban combat U.S. Marines have seen since the Battle of Huế City in 1968 Vietnam. Fallujah was occupied by fighting virtually every insurgent group in Iraq at the time and the battle proved to be the bloodiest of the war. This event will remember the Marines and other coalition forces who fought in this renown battle.
+
 
 ## Packing List
 ### Gear

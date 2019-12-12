@@ -10,7 +10,6 @@
 ## Index
 - [Battle of Fallujah - Tough - Columbus, OH](#battle-of-fallujah---tough---cleveland-oh)
   - [Index](#index)
-  - [Training](#training)
   - [Event Background](#event-background)
   - [Packing List](#packing-list)
     - [Gear](#gear)
@@ -23,9 +22,6 @@
     - [Endex](#endex)
   - [Lessons Learned](#lessons-learned)
   - [What's Next?](#whats-next)
-
-## Training
-
 
 ## Event Background
 
@@ -61,7 +57,7 @@ Cadre Doug
 ## The Event
 
 ### Admin
-We had 31 folks sign up, about half chasing their bolts and had completed their heavy a few hours before.
+We had 31 folks show up, about half chasing their bolts and had completed their Heavy a few hours before.
 
 ### Welcoming Party
 
@@ -83,9 +79,6 @@ Here we formed up again, thinking we were done. We were wrong we had some PT to 
  
  ## Stats
  ![Battle of Fallujah Tough Stats](bofToughStats.png)
- * 11 hours 20 minutes
- * 14.16 Miles
- * 2,139 ft of elevation gain
   
 ## What's Next?
-* Battle of Fallujah light in about 4 hours
+* Battle of Fallujah Light in about 4 hours

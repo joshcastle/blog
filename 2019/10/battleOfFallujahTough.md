@@ -75,7 +75,7 @@ Here we formed up again, thinking we were done. We were wrong we had some PT to 
 * Never leave anyone behind, sometimes the cadre notices, and lessens the punishment for loosing. Anyways this is a TEAM event, it only matters what you do as a TEAM.
 * First Tough in the books, I can do this! Mental challenge was next level with this one because of the weather, but I got that patch!
  
- ## Stats
+## Stats
  ![Battle of Fallujah Tough Stats](bofToughStats.png)
   
 ## What's Next?

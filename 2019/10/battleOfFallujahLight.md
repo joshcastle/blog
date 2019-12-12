@@ -97,7 +97,8 @@ Queue the patch and beers then watch the extra bit of fun the HTLers had to pass
 * Completed my first Tough/Light weekend! It is possible
 * Get through the Tough and it's down hill from there.
 * I am competitive no matter what I have been through. I sprinted up that hill with the sandbag and my partner, and was quick to move to the front when it was my turn on the way back to endex. Always a motivation to not loose!
- 
+* Between events a got as much calories as I could stomach and attempted sleep. Probably got an hour. Both helped a ton!
+
 ## Stats
  ![battle of fallujah light stats](bofLightStats.png)
   

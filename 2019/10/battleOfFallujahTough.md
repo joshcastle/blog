@@ -49,6 +49,7 @@
 Cadre Igor
 ![Cadre Igor](../../images/cadre/igor.jpg)
 Cadre Doug
+![Cadre Igor](../../images/cadre/doug.jpg)
 
 ## The Event
 

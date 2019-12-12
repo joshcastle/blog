@@ -82,7 +82,7 @@ Here we formed up again, thinking we were done. We were wrong we had some PT to 
 * Get through the Tough and the following Light seems easy (as long as you have some fresh people for the light I am sure)!
  
 ## Stats
- 
+ ![battle of fallujah light stats](bofLightStats.png)
   
 ## What's Next?
 * Star Course 12 Miler in Nashville, TN with the Wife!

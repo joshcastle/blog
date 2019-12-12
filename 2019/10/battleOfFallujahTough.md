@@ -58,15 +58,31 @@ We had 31 folks show up, about half chasing their bolts and had completed their 
 
 ### Welcoming Party
 
-Weather was in the 50s but a steady mist and windy as hell. Looking back it looks like gusts were up to 30mph. We were right off the shores of Lake Erie so we felt all of the suck. We formed up and did the usual pushups, situps, flutter kicks, overhead press, etc. for about 30 minutes. We then paired up with "someone your size" (the words still haunt me). I paired up with another giant and then learned we were doing firemen carries down and back for about 200 yards. My partner tossed my on his shoulders and sprinted, easily beating the rest of the group. My turn, this was my first time doing these, so I bent to the side and got him on my shoulders and shakely walked down and back feeling like I could snap in half at any moment! Then we had a small movement to the beach. Here we did bear crawls, sprints, crab walks, inch worms, and anything else that could help the sand get in every crevice. We then assigned TL & ATL and were tasked with filling up the sandbags. Chaosed ensued as fillers lost sandbags, zippers got caked in sand, and all hope was lost. We had to dump them all in a pile and sort them back out. Then we ran to the water and looked at it. Folks from the Heavy knew what was coming next, the part were we get in. Gracefully we did not get in and ran back. Probably because we were already soaked from the rain. We then had a small group clean and fill sandbags while everyone else did the deck of death. After what felt like forever we got everything filled and formed up to move out.
+Weather was in the 50s but a steady mist and windy as hell. Looking back it looks like gusts were up to 30mph. We were right off the shores of Lake Erie so we felt all of the suck. We formed up and did the usual pushups, situps, flutter kicks, overhead press, etc. for about 30 minutes. 
+![welcomming part 1](FB_IMG_1576160358250.jpg)
+![welcomming part 2](FB_IMG_1576160366646.jpg)
+![welcomming part 3](FB_IMG_1576160368836.jpg)
+We then paired up with "someone your size" (the words still haunt me). I paired up with another giant and then learned we were doing firemen carries down and back for about 200 yards. My partner tossed my on his shoulders and sprinted, easily beating the rest of the group. My turn, this was my first time doing these, so I bent to the side and got him on my shoulders and shakely walked down and back feeling like I could snap in half at any moment! Then we had a small movement to the beach. Here we did bear crawls, sprints, crab walks, inch worms, and anything else that could help the sand get in every crevice. We then assigned TL & ATL and were tasked with filling up the sandbags. 
+![welcomming part 4](FB_IMG_1576160372931.jpg)
+Chaosed ensued as fillers lost sandbags, zippers got caked in sand, and all hope was lost. We had to dump them all in a pile and sort them back out. Then we ran to the water and looked at it. Folks from the Heavy knew what was coming next, the part were we get in. Gracefully we did not get in and ran back. Probably because we were already soaked from the rain. We then had a small group clean and fill sandbags while everyone else did the deck of death. After what felt like forever we got everything filled and formed up to move out.
 
 ### Movement
-
-We headed to the Rock and Roll Hall of Fame with the weight crushing us the whole time. Those 120s provide maximum opportunity to Embrace the Suck. From the Rock and Roll Hall of Fame we moved to a city center with a statue of Horse Soldiers to talk more about the battle before heading to a nearby park. Here we did low crawl races while split into two teams. Had to get a 80lb, 60lb, and 40lb sandbags to the other side while low crawling. Winner was the team that got Sandbags and all members across the line. We got the sandbags over quickly but had a couple members feeling the last 8 hours of beat down. Myself and a couple others low crawled back to help them across the line. We lost, but we didn't leave people behind. Cadre saw this and lessoned our punishment. Sun was up at this point and we proceeded back to Endex.
+![movement](FB_IMG_1576160405026.jpg)
+We headed to the Rock and Roll Hall of Fame with the weight crushing us the whole time. Those 120s provide maximum opportunity to Embrace the Suck. 
+![hard rock hall of fame](FB_IMG_1576160339680.jpg)
+From the Rock and Roll Hall of Fame we moved to a city center with a statue of Horse Soldiers to talk more about the battle before heading to a nearby park.
+![city center horse soldier](FB_IMG_1576160377995.jpg)
+In our first park we did some group exercises where as a team we had to do 320 situps with a time hack to drop some sandbags, we missed the time hack and doubled down on 320 pushups and a smaller time hack and pushed to make it happen.
+![group pt](FB_IMG_1576160394539.jpg)
+![group pt](FB_IMG_1576160399135.jpg)
+We then moved out to another park as daylight approached, here we did low crawl races while split into two teams. Had to get a 80lb, 60lb, and 40lb sandbags to the other side while low crawling. Winner was the team that got Sandbags and all members across the line. We got the sandbags over quickly but had a couple members feeling the last 8 hours of beat down. Myself and a couple others low crawled back to help them across the line. We lost, but we didn't leave people behind. Cadre saw this and lessoned our punishment. Sun was up at this point and we proceeded back to Endex.
 
 ### Endex
 
-Here we formed up again, thinking we were done. We were wrong we had some PT to put out before calling it. Tunnel of Love! Best part was as you got to the end the Cadre was waiting to help you up, patch in hand! Great way to finish it!
+Here we formed up again, thinking we were done. We were wrong we had some PT to put out before calling it. Tunnel of Love!
+![tunnel of love](FB_IMG_1576160414241.jpg)
+Best part was as you got to the end the Cadre was waiting to help you up, patch in hand! Great way to finish it!
+![endex](FB_IMG_1576160344390.jpg)
 
 ## Lessons Learned
 

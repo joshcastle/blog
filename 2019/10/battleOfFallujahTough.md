@@ -6,7 +6,7 @@
 # Battle of Fallujah - Tough - Cleveland, OH
 10-26-2019
 
-![Battle of Ramadi Patch](battleOfFallujahPatch.jpg "Battle of Fallujah Patch")
+![Battle of Fallujah Patch](battleOfFallujahPatch.jpg "Battle of Fallujah Patch")
 ## Index
 - [Battle of Fallujah - Tough - Columbus, OH](#battle-of-fallujah---tough---cleveland-oh)
   - [Index](#index)
@@ -35,13 +35,13 @@
 * Darn Tough Endurance 1/4 high
 * [Prana Stretch Zion Pant](https://www.prana.com/p/stretch-zion-pant/M4ST30116-CAGR-28.html?bvstate=pg:2/ct:r&mid=paidsearch&eid=google&gid=6&nid=CPCS_Search_Brand_DSA&oid=Product_Detail_Pages&gclid=EAIaIQobChMItem1xoCs5gIVjIbACh3gagz6EAAYAiAAEgI_D_D_BwE)
 * Under Armour Coldgear Base
-* GORUCK T Shirt
+* GORUCK Spearhead T Shirt
 * North Face Rain Jacket
-* GORUCK Tachat w/American FlagPatch
+* GORUCK Tac Hat w/American Flag Patch
 * 20L Rucker w/Sternum Strap & Hip Belt
   * [30lb Ruck Plate](https://www.goruck.com/ruck-plates-for-rucker/)
   * [3L Bladder](https://www.amazon.com/gp/product/B016SSZD3G/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
-  * 32oz Gatorade (Frost for the win!)
+  * Nalgene 
   * [White Reflective Bands](https://www.amazon.com/gp/product/B000KGATL4/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
   * [25kN Carabiner](https://www.amazon.com/gp/product/B073XS2KLJ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
   * [Pelican 1060 Micro Case](https://www.amazon.com/gp/product/B0029Q7A1K/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1)
@@ -52,20 +52,34 @@
   * Black Diamond headlamp
 
 ## Event Location
->[Scioto Audubon Metro Park, Columbus, OH](https://goo.gl/maps/cmw8Nfb7EbAd5Av56)
+>[Edgewater Park, Cleveland, OH](https://goo.gl/maps/DvUJMbUW7e8XV6Xn7)
 
 ## Cadre
+Cadre Igor
+Cadre Doug
 
 ## The Event
 
 ### Admin
+We had 31 folks sign up, about half chasing their bolts and had completed their heavy a few hours before.
 
 ### Welcoming Party
 
+Weather was in the 50s but a steady mist and windy as hell. Looking back it looks like gusts were up to 30mph. We were right off the shores of Lake Erie so we felt all of the suck. We formed up and did the usual pushups, situps, flutter kicks, overhead press, etc. for about 30 minutes. Then had a small movement to the beach. Here we did bear crawls, sprints, crab walks, inch worms, and anything else that could help the sand get in every crevice. We then assigned TL & ATL and were tasked with filling up the sandbags. Chaosed ensued as fillers lost sandbags, zippers got caked in sand, and all hope was lost. We had to dump them all in a pile and sort them back out. Then we ran to the water and looked at it. Folks from the Heavy knew what was coming next, the part were we get in. Gracefully we did not get in and ran back. Probably because we were already soaked from the rain. We then had a small group clean and fill sandbags while everyone else did the deck of death. After what felt like forever we got everything filled and formed up to move out.
+
 ### Movement
+
+We headed to the Rock and Roll Hall of Fame with the weight crushing us the whole time. Those 120s provide maximum opportunity to Embrace the Suck. From the Rock and Roll Hall of Fame we moved to a city center with a statue of Horse Soldiers to talk more about the battle before heading to a nearby park. Here we did low crawl races while split into two teams. Had to get a 80lb, 60lb, and 40lb sandbags to the other side while low crawling. Winner was the team that got Sandbags and all members across the line. We got the sandbags over quickly but had a couple members feeling the last 8 hours of beat down. Myself and a couple others low crawled back to help them across the line. We lost, but we didn't leave people behind. Cadre saw this and lessoned our punishment. Sun was up at this point and we proceeded back to Endex.
 
 ### Endex
 
+Here we formed up again, thinking we were done. We were wrong we had some PT to put out before calling it. Tunnel of Love! Best part was as you got to the end the Cadre was waiting to help you up, patch in hand! Great way to finish it!
+
 ## Lessons Learned
+
+* Always lift with your legs for fireman carries. I strained my traps something feirce by bending at the waste.
+* Windbreaker for the win, really helped keep the beating rain and wind off me.
+* Never leave anyone behind, sometimes it even helps if you still end up loosing.
+ 
   
 ## What's Next?

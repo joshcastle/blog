@@ -5,24 +5,13 @@
 ## Index
 - [Star Course - 12 Miler - Nashville, TN](#star-course---12-miler---nashville-tn)
   - [Index](#index)
-  - [Training](#training)
-  - [Event Background](#event-background)
   - [Packing List](#packing-list)
     - [Gear](#gear)
   - [Event Location](#event-location)
   - [Cadre](#cadre)
   - [The Event](#the-event)
-    - [Admin](#admin)
-    - [Welcoming Party](#welcoming-party)
-    - [Movement](#movement)
-    - [Endex](#endex)
   - [Lessons Learned](#lessons-learned)
   - [What's Next?](#whats-next)
-
-## Training
-
-
-## Event Background
 
 ## Packing List
 ### Gear
@@ -47,14 +36,6 @@
 ## Cadre
 
 ## The Event
-
-### Admin
-We gathered in an open area and the admin phase kicked off: roll call, identify service members/LEO/EMT in the group, and ask about any health concerns the Cadre should know about.
-### Welcoming Party
-
-### Movement
-
-### Endex
 
 ## Lessons Learned
   

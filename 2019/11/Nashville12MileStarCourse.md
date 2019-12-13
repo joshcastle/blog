@@ -1,9 +1,9 @@
-# Battle of Ramadi - Light - Columbus, OH
-06-15-2019
+# Star Course - 12 Miler - Nashville, TN
+11-02-2019
 
-![Battle of Ramadi Patch](battleOfRamadiPatch.jpg "Battle of Ramadi Patch")
+![Nashville 12 Miler Patch](SC_facebook_banner_NASHVILLE-12_18.jpg "Nashville 12 Miler Patch")
 ## Index
-- [Battle of Ramadi - Light - Columbus, OH](#battle-of-ramadi---light---columbus-oh)
+- [Star Course - 12 Miler - Nashville, TN](#star-course---12-miler---nashville-tn)
   - [Index](#index)
   - [Training](#training)
   - [Event Background](#event-background)

@@ -46,7 +46,7 @@ Cadre Brad
 
 We gathered our team, Ruck Funning, and carpooled to what we believed to be the start point. Ended up being about a 3/4 of a mile away, so we got a nice warm up before which was welcomed on a cool morning, especially in the shade. Found the large group at a shelter by the lake. 
 
-We checked in and weighed rucks and went over the basics. At noon each group leader would get the waypoints and the 5 hour timer would start. We had downloaded the [Road Warrior App](https://www.roadwarrior.app/) to plug in our waypoints to get the most efficient order to hit them in. We took a chance with the free version knowing that the 12 miler would likely fall under the 8 stop max the app did before requiring payment. We were right and only had 4 points to hit. We quickly plugged the points in and got our order before snapping a picture at the start point. At this point Star Courses were texting pictures to a phone number instead of using instagram.
+We checked in, weighed rucks, and went over the basics. At noon each group leader received the waypoints and the 5 hour timer start3e. We had downloaded the [Road Warrior App](https://www.roadwarrior.app/) to plug in our waypoints to get the most efficient order to hit them in. We took a chance with the free version knowing that the 12 miler would likely fall under the 8 stop max the app had before requiring payment. We were right and only had 4 points to hit. We quickly plugged the points in and got our order before snapping a picture at the start point. We used Google Maps to navigate to points after we knew the most efficient route. At this point in time Star Courses were texting pictures to a phone number instead of using instagram.
 
 Waypoint List
 ![waypoints](IMG_20191102_120249.jpg)

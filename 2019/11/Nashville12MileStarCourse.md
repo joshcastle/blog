@@ -16,12 +16,14 @@
 
 ## Packing List
 ### Gear
-* [SALOMON Men's Xa Pro 3D Trail Runner](https://www.amazon.com/Salomon-Trail-Running-Shoes-black/dp/B01HD6SXWA/ref=pd_rhf_ee_s_rp_c_0_8?_encoding=UTF8&pd_rd_i=B01HD6SXWA&pd_rd_r=0b5cf26b-aea4-4b56-88ec-053ae5091a77&pd_rd_w=tnevL&pd_rd_wg=vvIJG&pf_rd_p=e7de3e41-8621-46b5-8090-e75951bb9b3e&pf_rd_r=BVGQXQYTCJVR1FEYFR5H&psc=1&refRID=BVGQXQYTCJVR1FEYFR5H)
+* Nike Zoom Pegasus 34
 * Darn Tough Endurance 1/4 Socks
 * Eddie Bauer Trek Pants
 * 32 Degrees Base Layer
 * GORUCK Spearhead T-Shirt
 * Fila Grid Fleece
+* GORUCK Tac Hat w/ American Flag Patch
+* Ray Ban Wayfarer Polarized (Rule #1)
 * 20L Rucker w/Sternum Strap & Hip Belt
   * [20lb Ruck Plate](https://www.goruck.com/ruck-plates-for-rucker/)
   * [3L Bladder](https://www.amazon.com/gp/product/B016SSZD3G/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)

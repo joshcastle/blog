@@ -47,7 +47,7 @@ This event focus on the events that happened during the Battle of Ramadi in 2006
 
 ## Cadre
 Cadre Igor
-![CaDre Igor](igor.jpg "Cadre Igor")
+![CaDre Igor](../../images/cadre/igor.jpg "Cadre Igor")
 
 ## The Event
 Showed up about 15 minutes before start time and saw a small group assembling of what looked to be fellow Ruckers. I had done a little bit of research on Cadre Igor prior to the event and saw he posted that morning a picture of the Ranger tab setting on his car at the park. Sure enough there it was. I was in the right place.

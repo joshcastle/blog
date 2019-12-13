@@ -62,11 +62,11 @@ We had 52 folks show up! A little under half STILL chasing their bolts and had c
 
 ### Welcoming Party
 ![pt](FB_IMG_1576181890619.jpg)
-Weather was in the mid 50s with the sun poking through the clouds. All of the those chasing their HTL bolts lead the welcoming party, each choosing an exercise for everyone circle around them to do. Personal favorite was the Star Gazers :) We then chose a TL and ATL that were new to a GORUCK event. They had the tough job of wrangling HTL'ers and TL'ers that were running on fumes and ready to celebrate. Not going to lie, dropping down to the 20lb weight made a huge difference along with the weather and I was comfortably cruising at this point. Not grey manning, but just good to go and feeling great.
+Weather was in the mid 50s with the sun poking through the clouds. All of the those chasing their HTL bolts lead the welcoming party, each choosing an exercise for everyone circled around them to do. Personal favorite was the Star Gazers :) We then chose a TL and ATL that were new to a GORUCK event. They had the tough job of wrangling HTL'ers and TL'ers that were running on fumes and ready to celebrate. Not going to lie, dropping down to the 20lb weight made a huge difference along with the weather and I was comfortably cruising at this point. Not grey manning, but just good to go and feeling great.
 
 ### Movement
 ![movement](FB_IMG_1576181896032.jpg)
-We moved towards a nice park with a good size hill in front of us as we formed up. We were to split into 3 teams in which would, in pairs, run a 80lb sandbag up the hill then backwards bear crawl down tagging the next pair to bear brawl up the hill and run the sandbag back down. The relay would continue until everyone finished, and it paid to be a winner. Luckily my team won and we cheared on the others as they paid with some pushups.
+We moved towards a nice park with a good size hill in front of us as we formed up. We were to split into 3 teams in which would, in pairs, run a 80lb sandbag up the hill then backwards bear crawl down tagging the next pair to bear crawl up the hill and run the sandbag back down. The relay would continue until everyone finished, and it paid to be a winner. Luckily my team won and we cheared on the other theams as they paid with some pushups.
 ![race](FB_IMG_1576181902131.jpg)
 
 ![120 movement](FB_IMG_1576181913443.jpg)
@@ -75,10 +75,10 @@ Proof I carry weight! That's my black and red Rucker and a 120lb Sandbag on my s
 Around this time we found some logs to carry. We then stopped at a pond to do flutter kicks over the water. 
 ![flutter kicks](FB_IMG_1576181940562.jpg)
 
-We also did the most frustrating thing I have done at an event, Dragon Boat races. This simple movement with the team tied interlaced between each other legs resulted in my team moving about 10 feet total in about 10 minutes! It was hilarious to watch, I am sure of that!
+We also did the most frustrating thing I have done at an event, Dragon Boat races. This simple movement with the team interlaced between each other legs resulted in my team moving about 10 feet total in about 10 minutes! It was hilarious to watch, I am sure of that!
 ![dragon boat](FB_IMG_1576181929033.jpg)
 
-The next PT was a VERY LARGE group PT of pushups. We formed a giant triangle and counted off. Each side of the triangle had a number 1, 2, 3, etc. Each Number would do pushups together and yell out the current number and then on the next tuple down and back as a group until we got to 520! We had a couple mess up early on but self corrected and got it done! It was pretty impressive if I must say so myself.
+The next PT was a VERY LARGE group PT of pushups. We formed a giant triangle and counted off. Each side of the triangle had a number 1, 2, 3, etc. Each Number would do pushups together and yell out the current number and then on the next tuple, down and back as a group until we got to 520! We had a couple mess ups early on but self corrected and got it done! It was pretty impressive if I must say so myself.
 ![pushup](FB_IMG_1576181950386.jpg)
 
 We then made a stop to talk about the events of Fallujah and had the privilege of having someone who served during the battle along with a couple others who had close friends/family serve in it. This was very moving and really drove home the reason we do these events, to put out in honor of those men and women and keep the story alive.
@@ -87,17 +87,17 @@ Heading to endex Cadre Igor asked for some motivated individuals to move the tea
 
 ### Endex
 ![sillhoutte endex](FB_IMG_1576181997549.jpg)
-Here we formed up again, thinking we were done. We were wrong we had some PT to put out before calling it. We laid interlaced on our backs to pass a person down the group (back into 3 groups for this) using just our hands to pass them down. This was tough and it was dark already making all the more interesting! 
+Here we formed up again, thinking we were done. We were wrong we and had some PT to put out before calling it. We laid interlaced on our backs to pass a person down the group (back into 3 groups for this) using just our hands to pass them down. This was tough and it was dark already making it all the more interesting! 
 ![endex trust bridge](FB_IMG_1576181970999.jpg)
 Queue the patch and beers then watch the extra bit of fun the HTLers had to pass through to finally get those bolts!
 
 
 ## Lessons Learned
 
-* Completed my first Tough/Light weekend! It is possible
+* Completed my first Tough/Light weekend! It is possible!
 * Get through the Tough and it's down hill from there.
 * I am competitive no matter what I have been through. I sprinted up that hill with the sandbag and my partner, and was quick to move to the front when it was my turn on the way back to endex. Always a motivation to not loose!
-* Between events a got as much calories as I could stomach and attempted sleep. Probably got an hour. Both helped a ton!
+* Between events I got as much calories as I could stomach and attempted sleep. Probably got an hour. Both helped a ton!
 
 ## Stats
  ![battle of fallujah light stats](bofLightStats.png)

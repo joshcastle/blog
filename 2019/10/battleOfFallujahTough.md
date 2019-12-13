@@ -86,7 +86,7 @@ We got the sandbags over quickly but had a couple members feeling the last 8 hou
 
 ### Endex
 
-Here we formed up again, thinking we were done. We were wrong we had some PT to put out before calling it. Tunnel of Love!
+Here we formed up again, thinking we were done. We were wrong and we had some PT to put out before calling it. Tunnel of Love!
 ![tunnel of love](FB_IMG_1576160414241.jpg)
 Best part was as you got to the end the Cadre was waiting to help you up, patch in hand! Great way to finish it!
 ![endex](FB_IMG_1576160344390.jpg)
@@ -97,6 +97,7 @@ Best part was as you got to the end the Cadre was waiting to help you up, patch 
 * Windbreaker for the win, really helped keep the beating rain and wind off me.
 * Never leave anyone behind, sometimes the cadre notices, and lessens the punishment for loosing. Anyways this is a TEAM event, it only matters what you do as a TEAM.
 * First Tough in the books, I can do this! Mental challenge was next level with this one because of the weather, but I got that patch!
+* When signs up of sunrise start to appear, this is a huge boost of energy!
  
 ## Stats
  ![Battle of Fallujah Tough Stats](bofToughStats.png)

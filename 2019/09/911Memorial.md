@@ -57,9 +57,9 @@ This event focused on the 40 ordinary citizens that were thrust into an extraord
 
 ## Cadre
 Cadre Barbrossa
-![cadre barbrossa](cadreBarbrossa.jpg "cadre barbrossa")
+![cadre barbrossa](../../images/cadreBarbrossa.jpg "cadre barbrossa")
 Cadre L DB
-![cadre l db](cadreLDB.jpg "cadre l db")
+![cadre l db](../../images/cadreLDB.jpg "cadre l db")
 
 ## The Event
 GORUCK is always more fun with a buddy so I convinced a co-worker to join us weirdos! We headed out the Friday night before for the 4 hour drive. Mandatory traveling Rucks picture:

@@ -7,7 +7,7 @@
 * [09/07/2019 - 9/11 Memorial- Light - Shanksville, PA](2019/09/911Memorial.md)
 * [10/25/2019 - Battle of Fallujah - Tough - Cleveland, OH](2019/10/battleOfFallujahTough.md)
 * [10/26/2019 - Battle of Fallujah - Light - Cleveland, OH](2019/10/battleOfFallujahLight.md)
-* 11/02/2019 - Star Course - 12 Miler - Nashville, TN
+* [11/02/2019 - Star Course - 12 Miler - Nashville, TN](2019/11/Nashville12MileStarCourse.md)
 * 12/06/2019 - Pearl Harbor - Tough - Columbus, OH
 * 12/07/2019 - Pearl Harbor - Light - Columbus, OH
 

@@ -3,7 +3,7 @@
 
 ![Battle of Fallujah Patch](FB_IMG_1576012427876.jpg "Battle of Fallujah Patch")
 ## Index
-- [Battle of Fallujah - Tough - Columbus, OH](#battle-of-fallujah---tough---cleveland-oh)
+- [Battle of Fallujah - Tough - Cleveland, OH](#battle-of-fallujah---tough---cleveland-oh)
   - [Index](#index)
   - [Event Background](#event-background)
   - [Packing List](#packing-list)
@@ -16,6 +16,7 @@
     - [Movement](#movement)
     - [Endex](#endex)
   - [Lessons Learned](#lessons-learned)
+  - [Stats](#stats)
   - [What's Next?](#whats-next)
 
 ## Event Background
@@ -45,7 +46,7 @@ When his Marines arrived in Iraq in 2003, Gen. Mattis spoke those words to live 
     * NUUN Tablets
     * First Aid Kit
   * Gloves
-  * Black Diamond headlamp
+  * Black Diamond Headlamp
 
 ## Event Location
 >[Edgewater Park, Cleveland, OH](https://goo.gl/maps/DvUJMbUW7e8XV6Xn7)
@@ -54,7 +55,7 @@ When his Marines arrived in Iraq in 2003, Gen. Mattis spoke those words to live 
 Cadre Igor
 ![Cadre Igor](../../images/cadre/igor.jpg)
 Cadre Doug
-![Cadre Igor](../../images/cadre/doug.jpg)
+![Cadre Doug](../../images/cadre/doug.jpg)
 
 ## The Event
 

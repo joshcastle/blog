@@ -1,11 +1,6 @@
 # Pearl Harbor - Tough - Columbus, OH
 12-06-2019
 
-Notes
-* 30°/ 20°
-* Matt's Notes: https://github.com/reinerm/Ruck-Funning/blob/master/2019/12/PearlHarbor.md
-* 
-
 ![Pearl Harbor Patch](pearlHarborToughPatch.webp "Pearl Harbor Patch")
 ## Index
 - [Pearl Harbor - Tough - Columbus, OH](#pearl-harbor---tough---columbus-oh)

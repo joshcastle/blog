@@ -120,7 +120,7 @@ We headed back up to Eden Park with our sandbags, flags, and team weight. At thi
 
 * Cadre Steve runs his events heavy!
 * Cincinnati has unforgiving hills!
-* Sometimes less is more, especially with telephone polls. We started with 6 people, but put unnecessary strain on ourselves trying to carry with more people and short stepping. We probably should have designated partners of similar heights that would switch in when their partner needed a break.
+* Sometimes less is more, especially with telephone polls or logs. We started with 6 people, but put unnecessary strain on ourselves trying to carry with more people and short stepping. We probably should have designated partners of similar heights that would switch in when their partner needed a break.
 * Feet feel great! Running shoes for the win! Trail shoes may be a distant memory now.
 
   

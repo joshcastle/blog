@@ -94,6 +94,7 @@ We headed down near the river to a park where we found a few extra coupons in ad
 * American Flag
 * GORUCK Flag
 * 25lb Team Weight 
+
 We found:
 * 3 x 20lb rocks
 * 1 Log
@@ -102,6 +103,7 @@ Our next movement was across the river into Newport, KY about 2 or 3 miles. We f
 * Headcount
 * Route we were taking
 * Estimated time to complete movement
+
 We failed to do so, so we did flutter kicks for a while to make sure we didn't forget again!
 ![Flutter Kicks](lightPTPunishment.jpg)
 
@@ -110,14 +112,18 @@ We formed again, informed Cadre Steve we had 26 people, were going 2.7 miles (I 
 
 We ended movement under an overpass out of the rain and discussed Dynamic Leadership: the ability to figure out what motivates those you are responsible for, whether to use a strong voice or sharing expectations calmly along with how they are measuring against them. We then discussed the events of A Shau Valley. During this time people were wet and cold, the lack of movement made several start to significantly shiver. When we were finally ready to move, we formed pretty quickly.
 
-We headed back across the river into Cincinnati to a parking garage stairwell. Here we were tasked with getting all of our coupons, minus the log up 5 levels of the stairwell. Oh yeah we could only bear crawl or crab walk up the stairs. If you stand up, you start over. We actually made it up in about 15 minutes, but since we put the rocks into rucks, which was against the rules we had to go back down and in 10 minutes this time. We had the movement down and made this pretty easily.
+We headed back across the river into Cincinnati to a parking garage stairwell. Here we were tasked with getting all of our coupons, minus the log up 5 levels of the stairwell. Oh yeah we could only bear crawl or crab walk up the stairs. If you stand up, you start over. We actually made it up in about 15 minutes, but since we put the rocks into rucks, which was apparently against the rules we had to go back down and in 10 minutes this time. We had the movement down and made this pretty easily.
+
+We took a pause in the garage to get a quick demo of Ruck Wrap. I had already grabbed some a little while back, but it was great to get a demo and explanation of things. Wrap at 50% tight, for 3-5 minutes, while doing mobility exercises for what you just wrapped.
 
 The last movement was to swing by where we picked up our log and rocks to return them, before heading back to endex. Unfortunately we had to keep our sandbags.
 
 ### Endex
-We headed back up to Eden Park with our sandbags, flags, and team weight. Once again I wanted to finish strong so I grabbed a 120lb sandbag to carry up the last hill to endex and finish it right.
+We headed back up to Eden Park with our sandbags, flags, and team weight. Once again I wanted to finish strong so I grabbed a 120lb sandbag to carry up the last hill to endex and finish strong.
 ![Endex Carry](lightEndex.jpg)
 
+The T/L Finishers from the weekend:
+![TL Finishers](tlTeam.jpg)
 
 ## Stats
 ![Light Stats](lightStats.jpg)
@@ -126,7 +132,7 @@ We headed back up to Eden Park with our sandbags, flags, and team weight. Once a
 
 * Cadre Steve still runs his events heavy! Didn't change from the tough!
 * Cincinnati has unforgiving hills! Less than the tough, but they were still there!
-* Feet STILL feel great! Running shoes for the win! Trail shoes are definitely a distant memory now.
+* Feet STILL feel great! Trail shoes are definitely a distant memory now.
 * Spend the hours between events wisely, it can make a world of difference.
 
   

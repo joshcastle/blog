@@ -10,8 +10,8 @@
 * [11/02/2019 - Star Course - 12 Miler - Nashville, TN](2019/11/Nashville12MileStarCourse.md)
 * [12/06/2019 - Pearl Harbor - Tough - Columbus, OH](2019/12/pearlHarborTough.md)
 * [12/07/2019 - Pearl Harbor - Light - Columbus, OH](2019/12/pearlHarborLight.md)
-* 03/13/2030 - A Shau Valley - Tough - Cincinnati, OH
-* 03/14/2030 - A Shau Valley - Light - Cincinnati, OH
+* [03/13/2030 - A Shau Valley - Tough - Cincinnati, OH](2020/03/aShauValleyTough.md)
+* [03/14/2030 - A Shau Valley - Light - Cincinnati, OH](2020/03/aShauValleyLight.md)
 
 # Upcoming Events for Me
 * 04/11/2020 - Star Course - 26.2 Miler - Columbus, OH

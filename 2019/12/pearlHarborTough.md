@@ -15,6 +15,7 @@
     - [Welcoming Party](#welcoming-party)
     - [Movement](#movement)
     - [Endex](#endex)
+  - [Stats](#stats)
   - [Lessons Learned](#lessons-learned)
   - [What's Next?](#whats-next)
 
@@ -110,6 +111,9 @@ We made it back to the park and the sun had reason just before we entered. I was
 * 2 rounds of
   * 12 8ct bodybuilders
   * 7 ruck thrusters
+
+## Stats
+![Tough Stats](toughStats.jpg)
 
 ## Lessons Learned
 * Cold events are another beast!

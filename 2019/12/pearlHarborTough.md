@@ -80,7 +80,7 @@ We headed towards the Olentangy trail where Cadre Brad mentioned we would be mos
 
 Our first stop was around 1-2 miles I believe where we talked about the events leading up to Pearl Harbor. Cadre Brad then asked us how many years it had been since the attack. This being in 2019 it was 78 years. In remembrance Cadre Brad had us do 78 8 count bodybuilders! We chunked them into sets of 15 then 17 for the last and got it done. Feeling good at this point thinking we are past the worst of the PT. 
 
-Our next movement is longer this time and we end up at [Fred Beekman Park](https://goo.gl/maps/ZC2nHRCykTvZ9iPn7). We missed out time hack and had to do another 28 8 count bodybuilders! Getting fun now! We are now in the middle of 4 baseball fields and you can just tell Cadre Brad has something in mind. We gather around Cadre Brad as he tells us about Cadre Roony and his connection with him. He truly sounds like an awesome man, I wish I had gotten the opportunity to do an event with him and meet him. He has had a huge impact on the GORUCK community, which made what came next exciting for me. Cadre Brad said we were going to do the [Cadre Roony WOD](https://alldayruckoff.com/training/workouts/goruck-cadre-roony-wod/) in the middle of this park in the middle of the night in this freezing weather, knowing he'd be looking down on us getting a kick out of it. The Cadre Roony WOD was as follows:
+Our next movement is longer this time and we end up at [Fred Beekman Park](https://goo.gl/maps/ZC2nHRCykTvZ9iPn7). We missed our time hack and had to do another 28 8 count bodybuilders! Getting fun now! We are now in the middle of 4 baseball fields and you can just tell Cadre Brad has something in mind. We gather around Cadre Brad as he tells us about Cadre Roony and his connection with him. He truly sounds like an awesome man, I wish I had gotten the opportunity to do an event with him and meet him. He has had a huge impact on the GORUCK community, which made what came next exciting for me. Cadre Brad said we were going to do the [Cadre Roony WOD](https://alldayruckoff.com/training/workouts/goruck-cadre-roony-wod/) in the middle of this park in the middle of the night in this freezing weather, knowing he'd be looking down on us getting a kick out of it. The Cadre Roony WOD was as follows:
 * Long run (around the baseball field)
 * 5 rounds of
   * 75 4ct flutter kicks
@@ -101,7 +101,7 @@ We made a couple stops to discuss the events of Pearl Harbor again, one in the O
 
 
 ### Endex
-We made it back to the park and the sun had reason just before we entered. I was surprised to see we kept all the weight, minus any water we drank. We didn't go back to where we formed up originally so I figured we had some work left. I was kind of right, but it wasn't some work, it was a lot of work! We discussed the lives lost on the Arizona, the ship with heaviest lose of life at 1,177. Then the total amount that perished during the attack of 2,335 in total. Then we did a workout to make sure we remembered those numbers!
+We made it back to the park and the sun had risen just before we entered. I was surprised to see we kept all the weight, minus any water we drank. We didn't go back to where we formed up originally so I figured we had some work left. I was kind of right, but it wasn't some work, it was a lot of work! We discussed the lives lost on the Arizona, the ship with heaviest lose of life at 1,177. Then the total amount that perished during the attack of 2,335 in total. We then did a workout to make sure we remembered those numbers!
 * 2 rounds of
   * 11 8ct bodybuilder
   * 77 4ct flutter kicks
@@ -112,13 +112,19 @@ We made it back to the park and the sun had reason just before we entered. I was
   * 12 8ct bodybuilders
   * 7 ruck thrusters
 
+The last 2 rounds were 12 then 7 which represented the obvious date of the Pearl Harbor attack, but it had another meaning for Care Brad. On that day he lost a close team member who left a family behind, including a newborn child he never got the chance to meet. Cadre Brad spoke about meeting his buddies child and keeping in touch with his family when he got back from his deployment. A real gut check moment about our service men and women and their sacrifices. Incredibly grateful for them. A spark of motivation to finish the event strongly for sure.
+
 ## Stats
 ![Tough Stats](toughStats.jpg)
 
 ## Lessons Learned
+
 * Cold events are another beast!
   * Layers are important, shed them during exercise and put them back on when stopped.
 * Cadre Brad loves PT!
+* Cadre Roony WOD is a hell of a workout!
 
   
 ## What's Next?
+
+* Pearl Harbor Light in a few hours!

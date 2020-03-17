@@ -103,7 +103,7 @@ Needless to say we got a lot of interesting looks carrying this downtown in fron
 
 ![Carrying Old Glory](toughFlag.jpg)
 
-We finally made it to our destination, WELL over our 80 minute estimate. Cadre Steve informed us we took 5 hours! The kicker being it was actually 5 miles, not 2.7 we were thinking. Either way an hour per mile is unacceptable so we needed to pay for that. We ended up doing 75 x 8 count body builders. Cadre Steve broadcasted that on Facebook live to the amusement of many I hear. Mercifully we got to stash the telephone pole at this point and proceed on. We snaked our way around Cincinnati eventually finding ourselves in front of the Great American Ballpark
+We finally made it to our destination, WELL over our 80 minute estimate. Cadre Steve informed us we took 5 hours! The kicker being it was actually 5 miles, not 2.7 we were thinking. Either way an hour per mile is unacceptable so we needed to pay for that. We ended up doing 75 x 8 count body builders. Cadre Steve broadcasted that on Facebook live to the amusement of many I hear. Mercifully we got to stash the telephone pole at this point and proceed on. We snaked our way around Cincinnati eventually finding ourselves in front of the Great American Ballpark.
 ![Great American Ballpark Team Photo](toughGreatAmerican.jpg)
 
 At one point during the night we had a couple guys wanting to quit. We had some folks spot this quickly and to the tune of, "No @#$%^&* Way!" we told them we were getting through this together as a team. We assessed their needs, and made sure they weren't under weight as much as possible. We even carried one of their rucks for the last couple miles. We made sure everyone finished that night.

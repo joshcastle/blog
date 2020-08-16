@@ -1,6 +1,6 @@
 ## Welcome to Ruck Geek!
 
-![Shanksville Light Class Photo](images/FB_IMG_1568023064863.jpg "Shanksville Light Class Photo")
+![Red Wings Tough Class Photo](2020/07/endex.jpg "Red Wings Tough Class Photo")
 
 # 2020 AARs
 * [07/17/2030 - Red Wings - Tough - Cincinnati, OH](2020/07/redWingsTough.md)

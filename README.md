@@ -3,9 +3,11 @@
 ![Red Wings Tough Class Photo](2020/07/endex.jpg "Red Wings Tough Class Photo")
 
 # 2020 AARs
-* [07/17/2030 - Red Wings - Tough - Cincinnati, OH](2020/07/redWingsTough.md)
-* [03/14/2030 - A Shau Valley - Light - Cincinnati, OH](2020/03/aShauValleyLight.md)
-* [03/13/2030 - A Shau Valley - Tough - Cincinnati, OH](2020/03/aShauValleyTough.md)
+* [09/11/2020 - HTL - Washington, DC](2020/09/HTL/911HTL.md)
+* [09/19/2020 - Cloverleaf - Bellbrook, OH]()
+* [07/17/2020 - Red Wings - Tough - Cincinnati, OH](2020/07/redWingsTough.md)
+* [03/14/2020 - A Shau Valley - Light - Cincinnati, OH](2020/03/aShauValleyLight.md)
+* [03/13/2020 - A Shau Valley - Tough - Cincinnati, OH](2020/03/aShauValleyTough.md)
 
 # 2019 AARs
 * [12/07/2019 - Pearl Harbor - Light - Columbus, OH](2019/12/pearlHarborLight.md)
@@ -17,7 +19,6 @@
 * [06/15/2019 - Battle of Ramadi - Light - Columbus, OH](2019/06/battle-of-ramadi-light.MD)
 
 # Upcoming Events for Me
-* 09/11/2020 - HTL - Washington, DC
 * 10/02/2020 - Double Tough - Tough x2 - Washington, DC
 
 ---

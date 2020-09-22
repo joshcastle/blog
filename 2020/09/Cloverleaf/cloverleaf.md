@@ -13,6 +13,7 @@
   - [The Event](#the-event)
     - [Admin](#admin)
     - [Workouts](#workouts)
+  - [Endex](#endex)
   - [Stats](#stats)
   - [Lessons Learned](#lessons-learned)
   - [What's Next?](#whats-next)
@@ -59,6 +60,10 @@ Cadre Jason
 
 Before admin everyone watched in awe as Team Assessment was still going on and about 40 hours in. We watched the teams do various things up and down the infamous hill and down to the river. Those folks are amazing, no question. They were absolute machines.
 
+Rucktopia was very nice!
+![rucktopia](rucktopia.jpg)
+![rucktopia2](rucktopia2.jpg)
+
 ### Workouts
 Choose your weight, add/remove as needed and just do the work. 
 
@@ -79,7 +84,7 @@ Choose your weight, add/remove as needed and just do the work.
 
 1 lap around soy fields
 
-**WOD #3 - The Will **
+**WOD #3 - The Will**
 10 Rounds
 * 10 Ruck Squats
 * 10 American Ruck Twists
@@ -93,6 +98,11 @@ Buy out of 25 pushups and 25 squats as a team.
 I pushed to do as much as I could with ruck on and most movements with SB.
 
 The coolest part of this event was getting to be in the middle of Team Assessment, meeting Jason, and visiting Rucktopia aka Jason's Dad's house. Don't get me wrong the event itself was cool, but definitely overshadowed a little.
+![ta](ta.jpg)
+
+## Endex
+![endex](endex.jpg)
+![endex columbus](endexColumbus.jpg)
 
 ## Stats
 ![cloverleaf stats](stats.jpg)

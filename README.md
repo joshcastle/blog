@@ -1,10 +1,13 @@
 ## Welcome to Ruck Geek!
 
-![Red Wings Tough Class Photo](2020/07/endex.jpg "Red Wings Tough Class Photo")
+![Bolts with Amigos](2020/09/htl/images/boltsAmigos.jpg "Bolts with Amigos")
+
+# Upcoming Events for Me
+* 10/02/2020 - Double Tough - Tough x2 - Washington, DC
 
 # 2020 AARs
-* [09/11/2020 - HTL - Washington, DC](2020/09/HTL/911HTL.md)
 * [09/19/2020 - Cloverleaf - Bellbrook, OH](2020/09/Cloverleaf/cloverleaf.md)
+* [09/11/2020 - HTL - Washington, DC](2020/09/HTL/911HTL.md)
 * [07/17/2020 - Red Wings - Tough - Cincinnati, OH](2020/07/redWingsTough.md)
 * [03/14/2020 - A Shau Valley - Light - Cincinnati, OH](2020/03/aShauValleyLight.md)
 * [03/13/2020 - A Shau Valley - Tough - Cincinnati, OH](2020/03/aShauValleyTough.md)
@@ -18,8 +21,7 @@
 * [09/07/2019 - 9/11 Memorial- Light - Shanksville, PA](2019/09/911Memorial.md)
 * [06/15/2019 - Battle of Ramadi - Light - Columbus, OH](2019/06/battle-of-ramadi-light.MD)
 
-# Upcoming Events for Me
-* 10/02/2020 - Double Tough - Tough x2 - Washington, DC
+
 
 ---
 ### Columbus Ruck Club

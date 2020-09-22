@@ -3,7 +3,7 @@
 ![HTL Group](2020/09/HTL/images/htlGroupBW.jpg)
 
 # Upcoming Events for Me
-* 10/02/2020 - Double Tough - Tough x2 - Washington, DC
+* 10/02/2020 - Day of The Ranger - Tough x2 - Washington, DC
 
 # 2020 AARs
 * [09/19/2020 - Cloverleaf - Bellbrook, OH](2020/09/Cloverleaf/cloverleaf.md)

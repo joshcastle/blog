@@ -1,6 +1,6 @@
 ## Welcome to Ruck Geek!
 
-![Bolts with Amigos](2020/09/htl/images/boltsAmigos.jpg "Bolts with Amigos")
+![Bolts with Amigos](2020/09/htl/images/boltsAmigos.jpg)
 
 # Upcoming Events for Me
 * 10/02/2020 - Double Tough - Tough x2 - Washington, DC

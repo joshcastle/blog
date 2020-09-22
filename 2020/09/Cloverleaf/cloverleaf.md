@@ -111,4 +111,4 @@ The coolest part of this event was getting to be in the middle of Team Assessmen
 * The infamous hill is crazy, even more respect for TA participants.
   
 ## What's Next?
-* Day of the Ranger double Tough in Washington, DC.
+* Day of The Ranger Double Tough in Washington, DC.

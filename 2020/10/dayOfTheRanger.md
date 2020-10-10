@@ -1,6 +1,19 @@
-64 started, 62 completed
+# Day of the Ranger - TT - Washington, DC
+10/03/2020-10/04/2020
 
+![DOTR Patch](images/DOTR_Patch.PNG "HTL Patch")
+## Index
+- [Day of the Ranger - TT - Washington, DC](#day-of-the-ranger---tt---washington-dc)
+  - [Index](#index)
+  - [Event Background](#event-background)
+  - [Packing List](#packing-list)
+    - [Gear](#gear)
+  - [Event Location](#event-location)
+  - [Cadre](#cadre)
+
+## Event Background
 Day of the Ranger
+
 In late August of 1993, an elite special operations force called Task Force Ranger (TFR) was deployed to Mogadishu, Somalia to find and capture a criminal warlord named Muhammed Farrah Aideed. TFR was un-precedented and formidable fighting force made up of the US Army’s Delta Force Commandos, US Army Rangers from the 3rd Ranger Battalion of the 75th Ranger Regiment, Air Force Operators, Navy SEALS and the Nightstalker helicopter crews of the US Army’s 160th Special Operations Air Regiment. On the 3rd of Oct, TFR launched a daring daylight raid into downtown Mogadishu where 21 Aideed's top officials were meeting in secret. While the initial raid was a success two Blackhawk helicopters would be shot down while the assault force, with its prisoners, were waiting for extraction! The mission now changed from a find and capture mission to a rescue mission for the downed members of the two crashed Blackhawks. This rescue would turn into the 18 hour Battle of Mogadishu or as Somalia’s were to name it! The Day of the Ranger. The heroics of the men in TFR both from the air and on the ground, fighting to save each other, is an extraordinary story of courage, perseverance and commitment and this event will commemorate the bravery of those both fallen and living who took part in this battle.
 
 The first Tough will begin at 21:00 on 10/2/19
@@ -8,6 +21,57 @@ The first Tough will begin at 21:00 on 10/2/19
 The second Tough will begin at 15:00 on 10/3/19
 
 You must complete both Tough events to earn the coveted Day of the Ranger patch.
+
+## Packing List
+### Gear
+* [Saucony Iso Ride 2](https://www.saucony.com/en/ride-iso-2/39110M.html#)
+* [Darn Tough Light Hiker Micro Crew Light Cushion ](https://darntough.com/products/fw19-mens-light-hiker-micro-crew-light-cushion?variant=28842606428213)
+* GORUCK Challenge Pants x2, Eddie Bauer Trek Pants
+* GORUCK T-Shirt, Under Armour Threadbone T-Shirt, Ruck Wrap T-Shirt
+* Dick's Sporting Good Base Layer for Tough and Light
+* GORUCK Performance Tack Hat
+* 26L GR1 Multicam Custom w/ Bottom Handle and Drain Holes
+  * 30lb Yes4All Plate, 20lb GORUCK Plate
+  * 3L Source Bladder
+  * GORUCK Nalgene 
+  * Yellow Reflective Bands
+  * [25kN Carabiner](https://www.amazon.com/gp/product/B073XS2KLJ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+  * [Pelican 1060 Micro Case](https://www.amazon.com/gp/product/B0029Q7A1K/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1)
+    * First Aid Kit
+    * Quiter Cash
+    * ID
+    * Spare Batteries
+    * Spare Socks
+    * Phone
+    * Garmin Watch
+    * Body Glide
+    * Spare Source Mouthpiece
+  * Ziploc Baggie(s)
+    * NUUN Tablets
+    * Cliff Bars (4 x Heavy) (3 x Tough) (1 x Light)
+    * Cliff Bloks + Caffeine (3 x Heavy) (2 x Tough) (1 x Light)
+    * Beef Jerky (2 x Heavy) 
+    * Trail Mix (2 x Heavy) (1 x Tough)
+    * Mustard Packets
+  * Hand Sanitizer
+  * Mechanix Gloves
+  * [Black Diamond Spot Headlamp](https://www.amazon.com/Black-Diamond-Spot-Headlamp-Size/dp/B06W54SBSL/ref=sr_1_4?dchild=1&keywords=black+diamond+headlamp+spot&qid=1578773865&sr=8-4)
+  * Neck Gaiter
+  * GORUCK Face Mask
+
+## Event Location
+>[Founders Park, Alexandria, VA](https://goo.gl/maps/D35mGa5FRRK2yyDG6)
+
+## Cadre
+Cadre Igor
+![Cadre Igor](../../images/cadre/igor.jpg)
+Cadre Belman
+![Cadre Belman](../../images/cadre/cadreBelman.jpg)
+Cadre Whiskey Mike
+![Cadre Whiskey Mike](../../images/cadre/cadreWhiskeyMike.jpg)
+
+
+64 started, 62 completed
 
 Tough 1
 * Start at 9pm
@@ -67,3 +131,29 @@ Lessons learned:
 * Need antacids packed, too many cliff bloks/bars give me enough acid to throw up.
 * Pack some real food next time for the moral pick me up
 * Need to give myself more time between events to fully appreciate them, got a little burned out during the events.
+
+
+![endex_patches](images/endex_patches.jpg)
+![t1_endex_movement](images/t1_endex_movement.jpg)
+![t1_movement](images/t1_movement.jpg)
+![t1_wait_team](images/t1_wait_team.jpg)
+![t1_weight_2](images/t1_weight_2.jpg)
+![t1_weight](images/t1_weight.jpg)
+![t1_welcome_2](images/t1_welcome_2.jpg)
+![t1_welcome](images/t1_welcome.jpg)
+![t2_breakdown](images/t2_breakdown.jpg)
+![t2_endex_sunrise](images/t2_endex_sunrise.jpg)
+![t2_irene](images/t2_irene.jpg)
+![t2_masonic_temple](images/t2_masonic_temple.jpg)
+![t2_move_to_endex](images/t2_move_to_endex.jpg)
+![t2_movement_2](images/t2_movement_2.jpg)
+![t2_movement_mid](images/t2_movement_mid.jpg)
+![t2_movement](images/t2_movement.jpg)
+![t2_relay](images/t2_relay.jpg)
+![t2_squad](images/t2_squad.jpg)
+![t2_sunrise](images/t2_sunrise.jpg)
+![t2_team_punish](images/t2_team_punish.jpg)
+![t2_to_endex](images/t2_to_endex.jpg)
+![t2_welcome](images/t2_welcome.jpg)
+![team_weight](images/team_weight.jpg)
+![troop_1](images/troop_1.jpg)

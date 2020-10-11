@@ -3,9 +3,11 @@
 ![HTL Group](2020/09/HTL/images/htlGroupBW.jpg)
 
 # Upcoming Events for Me
-* 10/02/2020 - Day of The Ranger - Tough x2 - Washington, DC
+* 10/23/2020 - Zombie Apocalypse - Tough - Pittsburgh, PA
+* 10/24/2020 - Zombie Apocalypse - Light - Pittsburgh, PA
 
 # 2020 AARs
+* [10/02/2020 - Day of The Ranger - Tough x2 - Washington, DC](2020/10/dayOfTheRanger.md)
 * [09/19/2020 - Cloverleaf - Bellbrook, OH](2020/09/Cloverleaf/cloverleaf.md)
 * [09/11/2020 - HTL - Washington, DC](2020/09/HTL/911HTL.md)
 * [07/17/2020 - Red Wings - Tough - Cincinnati, OH](2020/07/redWingsTough.md)

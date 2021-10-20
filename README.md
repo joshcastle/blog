@@ -5,6 +5,7 @@
 # 2021 Events
 * 10/01/2021 - Day of The Ranger - Tough x2 - Cincinnati, OH
 * 09/10/2021 - HTB - Washington, DC
+* 07/17/2021 - Star Course - 12 Miler - Columbus, OH
 * 05/06/2021 - Team Assessment - Bellbrook, OH - DNF
 * 03/13/2021 - St. Patty's - Basic - Pittsburgh, PA
 * 01/24/2021 - Star Course - 15k - Columbus, OH

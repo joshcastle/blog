@@ -16,8 +16,6 @@
     - [Movement](#movement)
     - [Endex](#endex)
   - [Stats](#stats)
-  - [Lessons Learned](#lessons-learned)
-  - [What's Next?](#whats-next)
 
 ## Event Background
 Zombie Apocalypse
@@ -99,8 +97,4 @@ Cadre Steve gave us the drop point and we needed to navigate ourselves there. Ce
 ## Stats
 ![Zombie Tough Stats](images/toughStats.jpg)
 
-## Lessons Learned
-
-
-## What's Next?
 

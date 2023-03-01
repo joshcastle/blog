@@ -1,6 +1,13 @@
 ## Welcome to Ruck Geek!
 
 ![HTL Group](2020/09/HTL/images/htlGroupBW.jpg)
+# 2023 Events
+* 02/03/2022 - HDT Throwdown - Twinsburg, OH
+
+# 2022 Events
+* 01/14/2022 - Bragg HTB - Ft. Bragg, NC
+* 10/01/2022 - Mog Mile Tough - Cleveland, OH
+* 11/04/2022 - Recon HTB - San Clemente, CA
 
 # 2021 Events
 * 10/01/2021 - Day of The Ranger - Tough x2 - Cincinnati, OH

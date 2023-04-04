@@ -3,6 +3,9 @@
 
 __*Don't wish it was easier, wish you were better. - Cadre JC*__
 
+![IMG_3970](https://user-images.githubusercontent.com/1322519/229809593-da13daed-ae35-4680-ac55-dbd4bd3c540c.jpeg)
+
+
 ## Heavy
 * Admin - straight forward no real ball busting 40 in formation, 30 going for HTB
 * movement to beach with team weight and Jerry cans.
@@ -105,7 +108,8 @@ __*Don't wish it was easier, wish you were better. - Cadre JC*__
 What a weekend, growth physically, mentally, emotionally, and spiritually. I found edges and pushed passed them, weaknesses were exposed, tears were shed for those who paid the ultimate sacrifice. I spent the weekend with some badass Americans. My cup runneth over. 💀⚡⚡⚡
 
 
-  ![313926212_1774629882898462_1588774228316408864_n](https://user-images.githubusercontent.com/1322519/229806813-1e6241aa-6f92-46fe-a403-a1ea47abc91e.jpeg)
+![IMG_1286](https://user-images.githubusercontent.com/1322519/229809518-5b19a6e0-7a00-405a-8ed4-733a5f3b9196.JPG)
+![313926212_1774629882898462_1588774228316408864_n](https://user-images.githubusercontent.com/1322519/229806813-1e6241aa-6f92-46fe-a403-a1ea47abc91e.jpeg)
 ![314016108_1774629892898461_1540034002555993068_n](https://user-images.githubusercontent.com/1322519/229806816-c062c12f-b3ef-44ac-be02-14ce324a3510.jpeg)
 ![FB_IMG_1667923705587](https://user-images.githubusercontent.com/1322519/229806818-9eb01170-4387-4934-8909-daf3d65f9a30.jpg)
 ![FB_IMG_1667923721580](https://user-images.githubusercontent.com/1322519/229806821-c6053a1e-c2e2-44a9-810a-5702cb3d2057.jpg)
@@ -116,5 +120,8 @@ What a weekend, growth physically, mentally, emotionally, and spiritually. I fou
 ![FB_IMG_1667923753800](https://user-images.githubusercontent.com/1322519/229806834-5729413f-ca48-46c0-a1b0-05f53ab01d95.jpg)
 ![FB_IMG_1667923759625](https://user-images.githubusercontent.com/1322519/229806836-bc10ec6a-97a4-436a-9a33-a5a874cb858e.jpg)
 ![FB_IMG_1667923780253](https://user-images.githubusercontent.com/1322519/229806840-0df253b4-46e6-4ea9-bb06-052d8a9f3348.jpg)
+
+
+
 ![FB_IMG_1667936021148](https://user-images.githubusercontent.com/1322519/229806847-e7f95bf8-ed3c-4959-acf3-6bb3e0f652bf.jpg)
 

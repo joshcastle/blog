@@ -65,7 +65,7 @@ __*Don't wish it was easier, wish you were better. - Cadre JC*__
 * patches, beer, fucking food truck
 * GB3 hella motivational. Exchanged words while patching me got HTB about my strong leadership and helping the team push the whole weekend. To earn respect from these dudes, indescribable.
 
-Gear of Note
+### Gear of Note
 * Altra Olympus 4 trail shoes, lone peaks with more cushion and vibram soles. Freaking clutch tread for days for mountains, drained well, great soles for rocky terrain. No blisters. 
 * GORUCK hoody - why the hell is it so comfortable!? It was clutch in allowing me to sleep like a baby as much as possible between events in a damn car!
 * Combat Ready Tape - did lower back, shoulders, and back of neck. Held very well and had no chafing.

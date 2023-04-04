@@ -100,5 +100,21 @@ Gear of Note
 > "Why are you here? Think about it, I want your answer later when I ask for it."
 
   Cadre GB3 with the hard hitting question. This was asked during the welcoming party which includes getting smoked with PT in the surf, covering ourselves in sand, and doing it again. Absolutely a time of wondering why the hell am I here. When asked several hours later while I and the rest of the team held our rucks overhead after another PT session, my thought was the same as on the beach. My kids. I replied, "To show my kids we can do hard shit, Cadre!" 
+  
 
 What a weekend, growth physically, mentally, emotionally, and spiritually. I found edges and pushed passed them, weaknesses were exposed, tears were shed for those who paid the ultimate sacrifice. I spent the weekend with some badass Americans. My cup runneth over. 💀⚡⚡⚡
+
+
+  ![313926212_1774629882898462_1588774228316408864_n](https://user-images.githubusercontent.com/1322519/229806813-1e6241aa-6f92-46fe-a403-a1ea47abc91e.jpeg)
+![314016108_1774629892898461_1540034002555993068_n](https://user-images.githubusercontent.com/1322519/229806816-c062c12f-b3ef-44ac-be02-14ce324a3510.jpeg)
+![FB_IMG_1667923705587](https://user-images.githubusercontent.com/1322519/229806818-9eb01170-4387-4934-8909-daf3d65f9a30.jpg)
+![FB_IMG_1667923721580](https://user-images.githubusercontent.com/1322519/229806821-c6053a1e-c2e2-44a9-810a-5702cb3d2057.jpg)
+![FB_IMG_1667923725003](https://user-images.githubusercontent.com/1322519/229806823-bc0a70da-7260-4100-b790-480e6aa8bdd0.jpg)
+![FB_IMG_1667923728592](https://user-images.githubusercontent.com/1322519/229806827-df40be64-b2d4-4af8-9fd5-3315fd5d0d7d.jpg)
+![FB_IMG_1667923732902](https://user-images.githubusercontent.com/1322519/229806830-d1566cbf-f44b-4c31-8571-8347cb84f9bf.jpg)
+![FB_IMG_1667923748370](https://user-images.githubusercontent.com/1322519/229806833-8c0193ca-87f4-43ca-b8f2-fc06c8de1691.jpg)
+![FB_IMG_1667923753800](https://user-images.githubusercontent.com/1322519/229806834-5729413f-ca48-46c0-a1b0-05f53ab01d95.jpg)
+![FB_IMG_1667923759625](https://user-images.githubusercontent.com/1322519/229806836-bc10ec6a-97a4-436a-9a33-a5a874cb858e.jpg)
+![FB_IMG_1667923780253](https://user-images.githubusercontent.com/1322519/229806840-0df253b4-46e6-4ea9-bb06-052d8a9f3348.jpg)
+![FB_IMG_1667936021148](https://user-images.githubusercontent.com/1322519/229806847-e7f95bf8-ed3c-4959-acf3-6bb3e0f652bf.jpg)
+
